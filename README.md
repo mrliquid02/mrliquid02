@@ -1,5 +1,5 @@
 # 💫 About Me:
-💲 Hyperliquid! Hyperliquid! Hyperliquid! <br> Building lot of stuff related to AI, Blockchain and SAAS. <br>⚡ Being active in the hyperliquid ecosystem earns me a lot of liquid dopamine 💚.<br>
+💲 Hyperliquid! Hyperliquid! Hyperliquid! <br>zzzzzz🐲 Building lot of stuff related to AI, Blockchain and SAAS. <br>💚 Being active in the hyperliquid ecosystem earns me a lot of liquid dopamine.<br>
 <br><br> 
 
 
